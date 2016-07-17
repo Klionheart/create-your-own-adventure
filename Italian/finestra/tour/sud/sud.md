@@ -1,0 +1,3 @@
+Ti avvii verso sud, dove il paesaggio diventa sempre meno urbano.
+
+In lontananza vedi una grande catena montuosa...

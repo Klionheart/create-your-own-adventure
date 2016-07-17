@@ -1,0 +1,1 @@
+Ti avvii verso Nord, dove vedi in lontananza un enorme palazzo orientale in stile mille e una notte.
